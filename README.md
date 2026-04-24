@@ -4,5 +4,3 @@ $${\color{red}my\ representive\ animals\ are \ ferrets \ and \ ravens, \ }$$
 
 $${\color{red}sign\ ata\ please,, \ }$$
 
-
-[*ts is so hard.*](*https://github.com/magicalgirll*)
