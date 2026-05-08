@@ -1,7 +1,5 @@
-$${\color{red}whatever \ you \ do\ at \ the \ crossroads,\ keep \ going \ forward.\}$$
+$${\color{red}whatever \ you \ do\ at \ the \ crossroads,\ dont \ turn \ left.\}$$
 
-$${\color{red}or\ something \ like\ that}$$
-
-$${\color{red}i\ was \ never\ really \ good \ at\ endings.}$$
+$${\color{red}HELP \ ONE \ OF\ MY \ EX \ FRIENDS\ CALLED \ ME \ TOXIC\ WHEN \ SHE \ CALLED \ ME \ UGLY??}$$
 
 
