@@ -6,7 +6,7 @@ $${\color{orange}sign \ ata \ please  }$$
 $${\color{yellow} or \ straw }$$
 $${\color{light yellow} character \ is \ dazai \ osamu \ bsd }$$
 $${\color{white} coolest \ person \ EVER }$$
-$${\color{grey} best \ viewed \ on \ laptop \ ig }$$
+$${\color{grey} im \ peak \ af }$$
 
 
 
